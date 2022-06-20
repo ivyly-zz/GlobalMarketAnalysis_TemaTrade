@@ -1,0 +1,1 @@
+# GlobalMarketAnalysis_TemaTrade
